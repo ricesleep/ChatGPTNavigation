@@ -7,6 +7,10 @@
 
 > <a href="http://nav.52ai.love/static/wxzs/wxds.png" target="_blank"> 👉【🧡打赞我🧡】👈</a>
 
+---
+https://maxlay.github.io/2023/03/17/%E5%9B%BD%E5%86%85%E7%94%A8%E6%AD%A3%E7%89%88ChatGPT/
+我验证过的ip: https://chat9.binjie.site:7777/#/chat/1680702401884
+---
 
 <br/>
 
